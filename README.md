@@ -1,6 +1,6 @@
-# Quran Chapter 33 | QuranBookk.com 
+# Quran Chapter 1 | [QuranBookk.com](http://www.quranbookk.com/) 
 
-For more infos, Click [QuranBookk - 33](https://www.quranbookk.com/quran/search?q=33:) to Search at [QuranBookk.com](http://quranbookk.com/)
+For more infos, Click [QuranBookk - 1](https://www.quranbookk.com/quran/search?q=1:) to Search at [QuranBookk.com](http://quranbookk.com/)
 
 
 # QuranBookk.com - Quran | [QuranBook](https://www.quranbookk.com)
